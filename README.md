@@ -4,5 +4,6 @@ Here you can find my undergraduate and graduate academic projects from general t
 
 🇵🇷   [University of Puerto Rico](https://www.uprrp.edu/english/)  
 🇬🇧   [City, University of London](https://www.city.ac.uk/prospective-students/courses/postgraduate/computer-games-technology)  
-🎵  https://soundcloud.com/luiyo0/sets/piccolo-recordings
+✉️  (luis-angel.flores-carrubio@city.ac.uk)
+🎵  [Flute Recordings](https://soundcloud.com/luiyo0/sets/piccolo-recordings)
 
